@@ -20,7 +20,8 @@ Me chamo **Ewerton de Carvalho Costa**, tenho 21 anos e curso **Ciência da Comp
 
 
 # 📫 Como me encontrar
-📧 ewerton1039@gmail.com
+📧 ewerton1039@gmail.com 
+<br></br>
 📱 (11) 94152-1892
 
 
